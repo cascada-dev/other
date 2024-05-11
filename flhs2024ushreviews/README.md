@@ -7,5 +7,7 @@ The following list includes links to lecture recordings that are free for studen
 - [Unit 4 - WWI and the Roaring 20s](https://browardcountyschools-my.sharepoint.com/:v:/g/personal/0610073455_my_browardschools_com/ESJl89UHUdlAnRJAeeyO96MBrrmopsGSLfEj_dV-AWy78Q)
 - [Unit 5 - The Great Depression and The New Deal](https://browardcountyschools-my.sharepoint.com/:v:/g/personal/0610073455_my_browardschools_com/Ebs0u0oG7nxClZYjm8_lvWYBr56PwYxCfExQjssJUYlxwQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=yHpaeN)
 - [Unit 6 - World War II](https://browardcountyschools-my.sharepoint.com/:v:/g/personal/0610073455_my_browardschools_com/EYVb8nFZE2BIkYPJCkNCnLQBRYo7g_n87NU8Tb_F9lBHYw)
+- [Unit 7 - World War II](https://browardcountyschools-my.sharepoint.com/:v:/g/personal/0610073455_my_browardschools_com/Eafj8GDaimxMjRK9fMq8aPABEFPa3TUmWT-gDOOseFdLmQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=CCUILw)
+- [Unit 8 - The Post-War Boom & Era of Social Change](https://browardcountyschools-my.sharepoint.com/:v:/g/personal/0610073455_my_browardschools_com/ETJQxqYZK1ZAodwNdqBjA-YBrvzXrF6iokimxumsKityLg?e=3FZ73i)
 
 Note: You must be signed onto your BCPS Entra ID account to access these videos.
